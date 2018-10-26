@@ -1,2 +1,2 @@
 # Resume
-My professional resume otra cosa
+My professional resume
